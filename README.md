@@ -1,2 +1,2 @@
-# theonlyone
+# TheOnlyOne
  CURRICULUM 
